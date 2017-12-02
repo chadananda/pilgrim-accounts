@@ -4,10 +4,10 @@ Consolidation of various public collections of pilgrim note accounts. This is an
 1. Link each typed manuscript to one or more scanned originals
 2. Sort out correct date and author for each
 3. Upgrade readability of typed copy 
-  * Standardize spellings of Arabic/Farsi terms
-  * Sandardize formatting into simple Markdown with some extensions for page numbering etc.
-  * Expand acronyms for TTS
-  * Correct obvious typos in spelling and grammar
+  a. Standardize spellings of Arabic/Farsi terms
+  b. Sandardize formatting into simple Markdown with some extensions for page numbering etc.
+  c. Expand acronyms for TTS
+  d. Correct obvious typos in spelling and grammar
   
   
   
