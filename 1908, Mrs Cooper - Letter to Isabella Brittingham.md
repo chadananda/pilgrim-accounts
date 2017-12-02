@@ -1,0 +1,84 @@
+...
+description: 1908, Mrs. Cooper - Letter to Isabella Brittingham  
+author: Ella Goodall Cooper  
+title: Portion of a letter to Mrs. Isabella D. Brittingham, of America. 
+notes:
+...
+
+
+# Portion of a letter to Mrs. Isabella D. Brittingham, of America.  
+## Ella Goodall Cooper  
+### 1908, Mrs. Cooper - Letter to Isabella Brittingham  
+
+------ 
+
+
+9 {.noid}
+ 
+Alláh’u’Abhá! {.greet}
+ 
+‘Akká, Syria, January 16, 1908.  {.date .greet}
+
+Beloved sister:  {.greet}
+
+Our glorious visit is nearly ended, but you must have at least a few lines from this Blessed Spot and the beautiful, special message our Lord sent to you.  
+
+Blessed are those who attain to the second visit, after a few years of even small service, for it is indeed a wonderful experience. Not only has my soul been bathed again in that perfect ocean of Divine Love and drank of that “peace that passeth all understanding, even more deeply and consciously than before, but each day has brought its lesson, - practical, matter of fact and homely, - of what it means to live the life.”  
+This has impressed me so strongly that truly I feel, and in all reverence I say it, that to the Attributes and Perfections that belong to God ought to be added Great Common Sense! You remember in what a state of mind we all came the first time (due mostly to our unfortunate early teaching), I know, for my part, I had the feeling that I must (if possible) do something extraordinary or dramatic in order to show my spirituality and my appreciation of my great privileges?  
+
+Our Beloved Master expects no such demonstration. He greeted us with a warm, strong hand-clasp, as might any other dear friend, adding the welcome of Him wonderful eyes and voice and smile, which, thank God, are unlike any other in all the world! He would not have permitted us to kneel if we had attempted it True, I did kiss His hand, but He deprecated even that One is always at His feet, nothing, else could be possible – but He does not care for the outward act, the personal homage, and discourages it upon every occasion: only another of the myriad proofs of His true Greatness.  
+
+But it smites one’s heart to see how the years increase His great Burden, and the strongest thought that comes and comes insistently is, O! if our believers could only realize that it is not by weeping at His feet they can best show their love for Him, but by promptly obeying His Command to unite in love and harmony, so that this Cause shall spread as it should, in America, before He has to leave the world. If they could only hear His voice as He asks so tenderly after their welfare; they could only see that Beloved race light up when we tell Him of the splendid service of some faithful one; if they could only hear Him say that nothing in the Prison makes Him sad, no matter how great the turmoil hero, no matter how great even the fact of His own death - nothing has the power to sadden Him for an instant - except the inharamony among the believers, and nothing can give :um such happiness, He adds, with that wonderful, patient smile, “as to hear of their love and unity.”  
+
+O! it does ‘Akká to me that nothing in heaven or earth would prevent them from uniting as He wishes, to begin immediately to bend all their forces, physical, mental and spiritual, to that supreme end. For, verily, has He not promised that when this is done the blessings will begin to flow? It is the one thing He has been waiting for these nine years. It is the only thing that we have the power to do for Him. This seems to us the most tremendous message we can bring from here for the beloved in America. And yet, He has not uttered one word of complaint on the subject!  
+
+We have been here nearly two weeks and something joyous happens every day. One afternoon we held a regular reception. There were a number of pilgrims from Persia, among them three or four Jews from Hammedan, Who were most anxious to see the Americans. So they came to our room in groups and after them the resident believers also in two or three groups, for our little room would not hold then all at once. It was such a keen pleasure to look upon those, illumined faces, to see the steadfastness glowing in their clear eyes, to hear their enthusiastic welcome and their devout, “El hamd el Alláh!” that they had lived to see with their own eyes the prophecies of the Holy Books fulfilled in these days! The Jews interested us so much; they were new believers and such enthusiasm is good for the cool (?) Anglo-Saxon to see. We told them about Mr. Frankland and they thanked God for him.  
+
+Dear Mírzá Asadu’lláh was also here for a few days and made us several little visits. I gave him your particular greetings and he sent his love to you. He says the Master is very anxious that the Temple should be built, and he, himself, is just full of the subject. He said: “I know many of the believers think they are poor and because they cannot bring much they will not bring anything to the building of the Temple, but if they would each bring only one stone, the building would be finished. All must help, must, unite in the matter. The Temple is God’s and while the people are poor, God is rich and if they will only make an effort and lay the first stone, God will help them, as the believers in Iskhabad were helped, and before they know it, the Temple will be done.”  
+
+The dear old man says he loves the American believers very much. We told him that they loved him very much. He smiled and said: “Because they are all my children.”  
+
+A number of the visitors are from ‘Ishqábád – two of them women. We told there that we knew all out their Temple and were much interested, having seen photographs, etc., and they seemed very pleased. All ask after the American believers and show such sincere love for them, always speaking of the wonderful Power of the Word of God that has brought people together from opposite sides of the earth. Their depth of devotion seems to be no end and you could easily imagine any one of them becoming a martyr without a moment’s warning.  
+
+One day our Lord held a Feast for these pilgrims, particularly the Jews, and Miss Jack, mother and I were, of course, the only women at the table. The Master pleaded us at the head with Mírzá Asadu’lláh on one side and on the other the old, old uncle of Mírzá Mohsin and cousin of the Báb, who has come to ‘Akká to end his days, his active work being over.  
+
+The Master stood near the door, with the pitcher in His hand, and as the man filed in and held their hands over Vi howl, He poured the water, while He spoke cheerful words of greeting to each one, saying: “Bismillah! Bismillah!” with every breath. It was a long table (in the large entrance bail of the new home), yet it would not hold then all and about six or eight were left over They sat down late, with the Master, to the second helping. He, of course, served with the assistance of two or three others. As it was not the regular nineteen day Feast I will not go into details here except to say that when the Master spoke, after they had nearly finished, it was on the subject of wren. He began by explaining that this Feast was for the visiting Jews - then said: “In this Day God has manifested ONE Light and to this Light are attracted all religions. Today three of them are gathered around this table, Muḥammadans, Christians, Jews. We must all thank God for the privilege of this sitting together, for this gathering is a symbol of the Unity of the Kingdom of God, when all nations, all creeds, all races, all religions, will gather in unity, under one tent, under the Shade of O Tree, and at one Table, to partake of Spiritual Food.” Then He came and stood close behind us, saying: “In the olden times it was not possible for the woven to sit in equality at the same table with the men, but in this Day it is different, and the difference has been brought about very largely by the position given to women in free America, - so that it has been made possible for these American women to sit at table with these men in perfect equality, by the Power of Bahá’u’lláh, showing that in the Kingdom of ABHÁ there is no difference between the woman and the man. He said it made Him very happy to see us all gathered there and He hopes that the fragrance of this meeting weld reach the nostrils of the believers all over the world and make them glad. (He said) “Such meetings have an effect on all the people.”  
+
+You see it was a little lesson for these new Oriental believers. Such are our daily lessons in this house!  
+
+It is both impressive and touching to watch the family life of the Household. Yet, while everything and every member revolves around that shining Center, who is the very Source of Existence, not the least show is made of their care or their constant watchfulness. While all, even the youngest little maid who serves, are ever on the alert, and no strange footstep, no creaking door, escapes their sharpened ears, - not a trace of anxiety is apparent in face or manner; all their precautions are taken so quietly that their guests shall not be saddened by the hint of their prison conditions or made to realize that on the account Extra caution necessary! is this not true hospitality?  
+
+Of course, every pilgrim understands the situation and is only too glad to help the efforts of it Holy Family by keeping the way of curious unbelievers who come to call, and never forget the precautions position of the glorious Prisoner.  
+
+While the daily life cannot be entirely systematic, for unexpected circumstances may determine every domestic event, - meals waiting upon the convenience of any Turkish visitor, - the sweet serenity of these beautiful people is never broken, as you know. They may sigh a little that their Beloved Lord is kit so long and tired so much, but the sigh is accompanied by a smile, while they explain that although it is hard for Him and takes His precious, precious time, He is only obeying the Commands of the Blessed Perfection, to be kind and hospitable, to all comers, whether they be friends or enemies. Yet this same strain continues day after day, week after week year after year. Otherwise they pursue their daily tasks render their sweet service make their little sacrifices, teach their children and play with them too, - short, carry out, under these extraordinary conditions, a perfect ideal of human family life. They are so simple, so sane so perfectly poised that there is no need of any pose, - simply a calm acceptance of Gods s Will and Wisdom in every little thing„ and a sure understanding of the future blessing which will be the fruit of their present patience, - blessing for all the people of the world. These are son of the results of living with such an Educator. These are our daily object lessons. At the same time they show a most comforting, joyous, human side and it is a delight to see how they make merry over every little joke, getting out of it, every bit of laughter it contains encouraging each other to seize every opportunity of looking at the bright, light aspect of life, thus (detracting their minds fry the tragic side of their existence. Even the Master, Himself, hardly ever came to the table without beginning to chaff Miss Jack about being now on the roll of the prisoners (she is to stay a year and teach) and asking what she would do if they should surround her with Turkish soldiers; and one day Monever <u>Kh</u>ánum came in to lunch a little late and greeted us, for we had not seen her before on that day, and He immediately turned to her with a twinkle and asked how it was she was saying “Good morning” at that hour, and why she had not seen us earlier. We explained that Miss. Zack was to blame, having given her a long, strenuous English lesson. He laughingly said to Miss Jack: ‘If you keep her away from our guests I Ethan ham, to punish you. At which lass Jack asked, And He promptly brought His hands smartly together with great glee as He said, in English: “Slap! Slap!” He was pleased when we responded to Him in the same spirit and told u over and over again, that He wished to see us always smiling and happy.  
+
+Thus, by this blessed relief of humor, you see He constantly preserves the balance.  
+
+This letter was not finished when it should have been, on account of a few days illness. Have you ever been sick at ‘Akká? It would be worth a good deal of suffering to experience, in that Holy Place, the tender care, the cheerful service and devoted attention all lavished with such infinite love, as a simple matter-of-course. Our Lord came in to see me at least twice a day. On the third day, as I was not better, He sat by my bedside, holding my hand, and said, in that tactful, sweet way of His: “We are commanded by the Blessed Perfection to consult a physician when we are sick.” Of course taws doctor came, and after one day of following his advice, I was well enough to get up and travel. But I was delighted at the way in which the doctor was suggested (I had not thought it necessary when Monever Khanun spoke of him). Our Lord did, not command me. He said. I should do just c.4.s I liked. Of course I “liked” to follow His suggestion, and was it not a nice lesson, too?  
+
+Well, we had to say good bye at last, but we told our Beloved that we could not, say it as the English do, but only the French, “Au revoir.” He liked that and said it, too, in French, so promptly, that it softened: our parting by giving us hope that indeed we may be permitted to see His beautiful Face once again before that long parting comes, when His Glorious Presence will be withdrawn from our earthly vision and only the wondrous memory and its Spiritual Power will remain with us to light us on to the end of our path of service in His Name.  
+
+We were obliged to spend the night in Haifa (after the ineffable experience at the Holy Tomb, which you understand so well) and as we stood and watched the moon rise over the Lebanon mountains, in the most melting, exquisite blending of blues I have ever seen, sea, sky, mountains and the arm peaks beyond, - I could not help but think, as the rich golden flood lit up that Holy City, how much it looked like a precious White Casket that holds the Jewel of the world. For indeed, (as Miss Barney says) is lie not like a perfect diamond, - that “gem of purest ray serene,” - without a fault or flaw, so surely cut, so completely polished, that through whatever facet of those many, many sides of a soul may look he will be able to see and understand and receive the, full, perfect, brilliant tight of the Whole Perfect Gem? (If I am indebted to anyone for this fancy, I gratefully acknowledge my obligation). So beautiful was this vision that it seemed like a benediction – the calm, unspoken voice of nature echoing the last sweet farewell. It sent us to bed happy, but not to sleep, - O! dear, no. such a spiritual “waking up” as we have had, - it seems as if we should never sleep again!  
+
+One more little note about the Temple. The name, “Ma<u>sh</u>riqu’l-A<u>dh</u>kár,” means, literally, the Rising Place or Dawning Point of Mention, or the Place for the mentioning of God; and the Master said that the believers were to her there every morning to read the WORDS of Bahá’u’lláh - which you see will mean that it is to be open every day.  
+
+This is a horrid, scrawly letter, dear one, but we shall see you so soon that were it not for your message I should not send it at all. Our Lord sent His love and greetings to all the friends in America and said, with such yearning in His eyes and voice: “I wish the believers could know how much I love them. I would give My life for them.”  
+
+Mother joins me in loving greetings to you and your dear husband and all the friends whom we hope soon to see.  
+
+We thought and talked of you both many times in His Presence, just an we prayed for you both at the Holy Tomb.  
+
+He said: “Give Mrs. Brittingham My best love and greetings and tell her that her services that she renders to this Cause are always before My eyes. They are written in the Book of the. Kingdom, - in the Heavenly Book, - and will never be forgotten; and before long they will be written in the pages of the world in glorified writing which shall be read by all the people.”  
+
+He said: “Give Mr. Brittingham My greetings and love. He should consider his wife as the crown upon his head. Through her he received the message and although he should strive all his days, and shower upon her all the wealth of the earth, he would still be in her debt, for she has given him the Life Eternal, the Everlasting Kingdom of God, - and there is no Gift equal to this.”  
+
+Blessed are ye both for such remembrance!   {.sig}
+
+Faithfully your sister in the service,   {.sig}  
+
+(signed) Ella Goodall Cooper.    {.sig} 
+
+(Received Feb. 8, 1908.)   {.ed}
+
+
+
