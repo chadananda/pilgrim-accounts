@@ -14,5 +14,13 @@ Consolidation of various public collections of pilgrim note accounts. This is an
     1. Expand acronyms for TTS
     1. Correct obvious typos in spelling and grammar
   
-  
+### How to get involved
+There are several ways you can interact with this collection.
+
+1. Fork the entire collection and use it your own purposes. It's open source, help youself.
+2. Add or clean up documents and contribute back with a pull request. The documents are all MD so you can edit them right inside Github
+    1. Note: if you wish to download the PDFs, you will need the [git extension for large binary files](https://git-lfs.github.com/) 
+3. Join the project as an editor and help supervise 
+
+
   
